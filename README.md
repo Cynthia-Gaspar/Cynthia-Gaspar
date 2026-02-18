@@ -16,4 +16,4 @@ I'm Cynthia, I started my journey studying <strong>Business Administration at UN
 
 ## 📬 Let's Connect!
 
-I'm always down to connect — whether it's about data, opportunities, or just to say hi! 😊
+I'm always down to connect, whether it's about data, opportunities, or just to say hi! 😊

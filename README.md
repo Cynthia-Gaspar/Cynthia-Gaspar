@@ -13,6 +13,7 @@ I'm Cynthia, I started my journey studying <strong>Business Administration at UN
 
 - **Spanish**
 - **English**
+- **French**
 
 ## 📬 Let's Connect!
 
